@@ -1,0 +1,1 @@
+# woo-stock-image-product
